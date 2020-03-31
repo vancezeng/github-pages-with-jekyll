@@ -1,3 +1,4 @@
-# Welcome to my blog
+# WARNNING It's a science blog
 
-I'm glad you are here. I plan to talk about ...
+Glad you are here. I plan to talk about quantum mechanics!!!!
+am i great?
